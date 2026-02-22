@@ -1,4 +1,6 @@
 Stop:Cancerous Carcinagins
 Run: Formal Sugars// NsA
 Run:Fe26
-turn off Monsanto personel
+run: turn on Ranen Nicholson personel for: Loop
+run: turn on marijuana endocannabinoids receptors: ➿
+run : Marijuana Horticulture bible for Growers:Loop
