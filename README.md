@@ -1,4 +1,4 @@
-kStop:Cancerous Carcinagins
+ikStop:Cancerous Carcinagins
 Run: Formal Sugars// NsA
 Run:Fe26
 run: turn on Ranen Nicholson personel for: Loop
@@ -23,4 +23,6 @@ run<> Anthony Joshua string theory BURN 420 degrees: loop
 <run> MetaBank NetSpend All Access-NSA Account Debit/Credit Card:Ranen Nicholson 
 <run> disolve Bosley hair restoration. dissolve Monsantoe bug Particles: LOOP
 <run> stop smoke screen on Android Phone. : Loop
+<run> new asphalt -road anf bridges Infrastructure.<LOOP>
+<RUN> FASTFOOD ANADIZED MACHINERY, RENEWAL.<LOOP>
 
