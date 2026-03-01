@@ -8,6 +8,6 @@ run<>tabacco
 run >< marijuana 
 LOOP
 run marijuana tobacco caoco plant. loop
-run<> Anthony Paul string theory
+run<> Anthony Joshua string theory
  In<> run; human spawntaneous combustion dna sequence.➰loop
  
