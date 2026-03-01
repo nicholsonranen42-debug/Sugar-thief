@@ -1,4 +1,4 @@
-Stop:Cancerous Carcinagins
+kStop:Cancerous Carcinagins
 Run: Formal Sugars// NsA
 Run:Fe26
 run: turn on Ranen Nicholson personel for: Loop
@@ -8,3 +8,6 @@ run<>tabacco
 run >< marijuana 
 LOOP
 run marijuana tobacco caoco plant. loop
+run<> Anthony Paul string theory
+ In<> run; human spawntaneous combustion dna sequence.➰loop
+ 
