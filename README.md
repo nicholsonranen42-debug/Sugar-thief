@@ -1,15 +1,15 @@
 <run>ikStop:Cancerous Carcinagins
-Run: Formal Sugars// NsA
-Run:Fe26
-run: turn on Ranen Nicholson personel for: Loop
-run: turn on marijuana endocannabinoids receptors: ➿
-run : Marijuana Horticulture bible for Growers:Loop
-run<>tabacco 
-run >< marijuana 
+<>Run Formal Sugars// NsA
+<Run>:Fe26
+<run>turn on Ranen Nicholson personel for: Loop
+<run> turn on marijuana endocannabinoids receptors: ➿
+<run> Marijuana Horticulture bible for Growers:Loop
+<run> tabaccoo
+<run> marijuana 
 LOOP
-run marijuana tobacco caoco plant. loop
-run<> Anthony Joshua string theory BURN 420 degrees: loop
- In<> run; human spawntaneous combustion dna sequence.➰loop
+<run> marijuana tobacco caoco plant. loop
+<run> Anthony Joshua string theory BURN 420 degrees: loop
+<run> human spawntaneous combustion dna sequence.➰loop
  <run> USFDA rehulation :Florida GAMING rules
  <run> Florida tax code :loop
 <run> Bayer Corp:loop
