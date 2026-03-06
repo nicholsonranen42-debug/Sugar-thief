@@ -23,7 +23,7 @@ LOOP
 <run> MetaBank NetSpend All Access-NSA Account Debit/Credit Card:Ranen Nicholson 
 <run> disolve Bosley hair restoration. dissolve Monsantoe bug Particles: LOOP
 <run> stop smoke screen on Android Phone. : Loop
-<run> new asphalt -road anf bridges Infrastructure.<LOOP>
+o<run> new asphalt -road anf bridges Infrastructure.<LOOP>
 <RUN> FASTFOOD ANADIZED MACHINERY, RENEWAL.<LOOP>
 <run>http://wwe.Apache2004.gov<loop>
 <run> geofencing earth and demagnetizing quantum fields<loop>
@@ -32,3 +32,4 @@ LOOP
 <run> Monsanto:Loop
 <Run>: Cumulous Cloud  Stratus Clouds Sirus clouds.:<Loop>
 <run> :iheart radio  am/fm: Additional add in <run>2026 year thru 2034. 
+<run> : coffee Folgers loop rna/dna caffeine. cocao bean. infusion: <loop>
