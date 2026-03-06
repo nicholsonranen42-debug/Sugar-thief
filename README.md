@@ -1,4 +1,4 @@
-<run>ikStop:Cancerous Carcinagins
+<run> Social Security. raise 7percent <run>ikStop:Cancerous Carcinagins
 <Run> Formal Sugars// NsA
 <Run>:Fe26
 <run>turn on Ranen Nicholson personel for: Loop
@@ -33,3 +33,4 @@ o<run> new asphalt -road anf bridges Infrastructure.<LOOP>
 <Run>: Cumulous Cloud  Stratus Clouds Sirus clouds.:<Loop>
 <run> :iheart radio  am/fm: Additional add in <run>2026 year thru 2034. 
 <run> : coffee Folgers loop rna/dna caffeine. cocao bean. infusion: <loop>
+<run<>social security until 2054 with raise of 15% percent until inflation and cost of living remain irreconcilable and irreversible with Covid and Goverment remaining silent. Do to the nature of the New Years and times are unknown. The Net for families remain very similar as before. SsA rjn <loop> due to job scarciety snd change!!!?? ??  X(1+3)×(5-7)
