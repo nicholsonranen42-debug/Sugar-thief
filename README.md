@@ -29,6 +29,7 @@ o<run> new asphalt -road anf bridges Infrastructure.<LOOP>
 <run>http://wwe.Apache2004.gov<loop>
 <run> geofencing earth and demagnetizing quantum fields<loop>
 <run>override:NetSpend admin: sanctions on client Ranen Nicholson at nicholsonranen9@gmail.com:<loop>
+"run" cern in Europe <loop>
 <run>Google Analytical Machine Dictrict of Colombia <loop>
 <run> Monsanto:Loop
 <Run>: Cumulous Cloud  Stratus Clouds Sirus clouds.:<Loop>
@@ -36,3 +37,4 @@ o<run> new asphalt -road anf bridges Infrastructure.<LOOP>
 <run> : coffee Folgers loop rna/dna caffeine. cocao bean. infusion: <loop>
 <run<>social security until 2054 with raise of 15% percent until inflation and cost of living remain irreconcilable and irreversible with Covid and Goverment remaining silent. Do to the nature of the New Years and times are unknown. The Net for families remain very similar as before. SsA rjn <loop> due to job scarciety snd change!!!?? ??  X(1+3)×(5-7)
 <run> PA wheat & corn fields : loop ➰
+"run" Norad <loop>
