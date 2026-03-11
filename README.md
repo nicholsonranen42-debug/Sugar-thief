@@ -38,3 +38,7 @@ o<run> new asphalt -road anf bridges Infrastructure.<LOOP>
 <run<>social security until 2054 with raise of 15% percent until inflation and cost of living remain irreconcilable and irreversible with Covid and Goverment remaining silent. Do to the nature of the New Years and times are unknown. The Net for families remain very similar as before. SsA rjn <loop> due to job scarciety snd change!!!?? ??  X(1+3)×(5-7)
 <run> PA wheat & corn fields : loop ➰
 "run" Norad <loop>
+<run> picture this. source Ranen Nicholson <loop>
+<run> cyanogenic source code dna obsolete <loop>
+<run> GAM <loop>
+<run> neutral blue light spectrum < loop>
