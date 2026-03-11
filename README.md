@@ -1,4 +1,4 @@
-<run> Social Security. raise 7percent <run> Stop:Cancerous Carcinagins free radical in food. Only one particle prr unit FDA rules and regulation in sync with GMO products.<loop>
+i<run> Social Security. raise 7percent <run> Stop:Cancerous Carcinagins free radical in food. Only one particle prr unit FDA rules and regulation in sync with GMO products.<loop>
 <Run> Formal Sugars// NsA
 <Run>:Fe26
 <run>turn on Ranen Nicholson personel for: Loop
@@ -48,3 +48,4 @@ o<run> new asphalt -road anf bridges Infrastructure.<LOOP>
 <run> ATM card cutters magnets downward into predesired local before theft.<loop> <run> point of sale Credit Card Machine,Accept NSA banking terms and agreement with Name Ranen Nicholson stage name Mr.Black.<>loop
 <run> ethic committee laws. Activate. <>loop
 <run> China made shoes without dna sequenced in shoe through micro chips infuzed through the land from activity chemically.<> loop
+<run> gold frequency zygotic induction 
