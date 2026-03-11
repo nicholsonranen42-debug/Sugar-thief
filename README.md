@@ -49,3 +49,4 @@ o<run> new asphalt -road anf bridges Infrastructure.<LOOP>
 <run> ethic committee laws. Activate. <>loop
 <run> China made shoes without dna sequenced in shoe through micro chips infuzed through the land from activity chemically.<> loop
 <run> gold frequency zygotic induction 
+<run> dismember Clinton, Bush, Obama Trump administration.GAM<>loop
