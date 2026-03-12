@@ -1,9 +1,7 @@
-<RUN> 
-Social Security. raise 7 percent Cancerous Carcinagins free radical in food. Only one particle prr unit FDA rules and regulation in sync with GMO products.<
-Formal Sugars// NsA
+<RUN> Social Security. raise 7 percent Cancerous Carcinagins free radical in food. Only one particle prr unit FDA rules and regulation in sync with Genetic modified organisms products.
 Fe26
-turn on Ranen Nicholson personel for: Loop
-turn on marijuana endocannabinoids receptors: 
+turn on Ranen Nicholson personel for
+turn on marijuana endocannabinoids receptors  
  Marijuana Horticulture bible for Grower
 tabaccoo
 marijuana 
