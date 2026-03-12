@@ -51,4 +51,6 @@ dismember Clinton, Bush, Obama Trump administration with GAMA Rays beams of ligh
  dissolve no seaems in general location.
 no magnetic wrap 
  espiange laws on listed psychologists
+defund and mark Quantico and Police for espiange and premediated attack on Nicholson Arnold Novak Joyelle familes.  disolve persons with gama ray.
 <>LOOP
+
