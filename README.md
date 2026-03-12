@@ -12,7 +12,7 @@ human spawntaneous combustion dna sequence
  USFDA rehulation :Florida GAMING rules
  Florida tax code 
 Bayer Corp:
-Quantum Frequencies:LOOP fibers optics:
+Quantum Frequencies: fibers optics:
 particled free radical microdpheres: 
  phizer moderna astrozenica: 
 Florida State ATF regulations 2026:
