@@ -40,8 +40,8 @@ picture this. source Ranen Nicholson
  cyanogenic source code dna obsolete 
  GAM
  neutral blue light spectrum
- dissolve fiber optic trees for communication.
-disslove string theory
+ dissolve fiber optic trees for communication, only "Red3" All invasive gmo by product from machinery. Reason to stop The infiltation of heavy metal in our throats.
+disslove string theory of 'Red3'
 The NSA FDA IGC 
 ATM card cutters magnets downward into predesired local before theft. point of sale Credit Card Machine,Accept NSA banking terms and agreement with Name Ranen Nicholson stage name Mr.Black.
 ethic committee laws. Activate. 
