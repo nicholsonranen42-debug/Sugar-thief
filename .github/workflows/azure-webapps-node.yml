@@ -1,8 +1,5 @@
 <RUN>: Monsantoe dna/rns source code Ranen James Nicholsonloop
-<run> This workflow will build and push a node.js application to an Azure Web App when a commit is pushed to your default branch.
-<run>
-<run> This workflow assumes you have already created the target Azure App Service web app.
- <run>For instructions see https://docs.microsoft.com/en-us/azure/app-service/quickstart-nodejs?tabs=linux&pivots=development-environment-cli
+
 #
 <run>To configure this workflow:
 #
